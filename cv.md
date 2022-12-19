@@ -6,7 +6,7 @@
 
 **Phone:** [+375297301615](+375297301615)
 
-**E-mail:** alenaxxxx94@gmail.com 
+**E-mail:**[alenaxxxx94@gmail.com ](alenaxxxx94@gmail.com) 
 
 **GitHub:** [ElenaXXXXX](https://github.com/ElenaXXXXX)
 
