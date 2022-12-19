@@ -6,15 +6,14 @@
 
 **Phone:** [+375297301615](+375297301615)
 
-**E-mail:**[alenaxxxx94@gmail.com ](alenaxxxx94@gmail.com) 
+**E-mail:** alenaxxxx94@gmail.com 
 
 **GitHub:** [ElenaXXXXX](https://github.com/ElenaXXXXX)
 
 ## **About Me** ## 
 
-I'm 28 years old, I work as a computer operator. I really want to learn and develop new skills. I think
-                my work has led me to a dead end. I have no options for further development. My goal is to gain
-                knowledge in the field of front-end development and get the job of my dreams. That's why I'm here.
+ I am 28 years old, I work as a computer operator. I really want to learn and develop new skills. 
+I think my work has brought me to a standstill. I don't have any options for further development. I really need classes in which I can develop throughout my life. That's why I'm here. My goal is to gain knowledge in the field of front-end development and get the job of my dreams. 
 
 ## **Skills and Proficiency:** ## 
 
